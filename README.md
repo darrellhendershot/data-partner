@@ -1,1 +1,1 @@
-# data-partner
+This is Jacintos, you can call me Lili. I am a Chinese college student based in Shanghai. I am also a cryptocurrency holder for more than one year. The initial reason why I applied as the clients' partner was that I wanna participate in the sales referral program of Filecoin Project Gravity. I want to get the reward from PL by connecting the data owners and SPs.
